@@ -1,4 +1,6 @@
-# **Ali Artach**
+# **Ali Artach**  
+![profile](https://media.licdn.com/dms/image/C4E03AQEdCP93vI-LlQ/profile-displayphoto-shrink_200_200/0/1660832481142?e=1698278400&v=beta&t=12FdahIBg0qbgyMkww2Ccl-SKd3W7QMeWX4egfqFZwQ)
+
 lebanon-beirut  
 aliartach96@gmail.com  
 +96171248327  
